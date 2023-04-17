@@ -1,0 +1,1 @@
+# TugasDataMiningPert-7
